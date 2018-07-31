@@ -3,4 +3,4 @@
 
 ### Screenshot : 
 
-![ Screenshot of Mockup To Article](http://i.prntscr.com/pDRU9I8bQZiYofghoZyLvw.png)
+![ Screenshot of Animal Trading Cards](http://i.prntscr.com/pDRU9I8bQZiYofghoZyLvw.png)
